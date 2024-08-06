@@ -1,3 +1,5 @@
 Oii, meu nome é **Chicolas**
 
 ![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS-4q5Ych8Y8IGbJrFYumyqQDOW78lrQcOebA&s)
+
+> Criado por Kimberly Bueno
